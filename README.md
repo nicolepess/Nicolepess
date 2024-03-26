@@ -1,4 +1,4 @@
-# [Nicole Pessoa] <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjW_dRg6nsg1dSpLuus3C2g1dCoB6eW0sTjCPduEzxVeN9qegEeXyzqNBEm4ynnefDmIvcjIGIplhTFbRQliBj-RsIR14KkIujiIeN85RgrXK_JTYLC7PajsG_JVuJacv2KRwpZ2JRiOD0/s1600/Hello+Kitty+2.gif" width="30px">
+# [Nicole Pessoa] <img src="https://media.tenor.com/U_ro3Npn9ZcAAAAM/mean-girls-mean-girls-movie.gif" width="50px">
 
 Eu sou <strong>Nicole</strong>, <strong>Tenho 15 anos, adoro ler livros, assistir séries e sair</strong> 👨🏻‍💻 
 
