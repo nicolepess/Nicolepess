@@ -1,5 +1,4 @@
-# [Nicole Pessoa] <img src="https://media.tenor.com/U_ro3Npn9ZcAAAAM/mean-girls-mean-girls-movie.gif" width="50px">
-
+# [Nicole Pessoa] 
 Eu sou <strong>Nicole</strong>, <strong>Tenho 16 anos, adoro ler livros, assistir séries e sair</strong> 👨🏻‍💻 
 
 - 🚀 Atualmente estou aprendendo: <strong>javascript</strong> 
